@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AmbarRenata
+- 👀 I’m interested in baking, cooking, and dancing
+- 🌱 I’m currently learning Tech
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me ... ambarrenata5@gmail.com
